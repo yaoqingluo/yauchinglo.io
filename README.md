@@ -1,6 +1,6 @@
 # Yaoqing Luo loves Xinxin Wang
 
-## Basic Information
+## I love Wangxinxin
 - Name: Your Name
 - Phone: Your Contact Number
 - Email: Your Email Address
